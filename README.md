@@ -14,7 +14,7 @@
 - ⚒️ Bootstrap | Intermediate
 
 ## How to contact me
-Discord: S0ME0NE#0001
+Discord: S0ME0NE#0069
 mail: antoine.dvt@eduge.ch
 <br />
 
